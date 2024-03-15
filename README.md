@@ -2,7 +2,8 @@
 - 👀 I’m interested in Filmmaking NoCode APPS, Graphic Designer, Website Designer and Education
 - 🌱 I’m currently learning about Ai and NoCode
 - 💞️ I’m looking to collaborate on Building an app
-- 📫 How to reach me cathylynnebronw@gmail.com https://www.virtualteacher.com.au/  https://www.combridgeinternational.com/ Twitter @vt_cathy
+- 📫 How to reach me cathylynnebronw@gmail.com https://www.virtualteacher.com.au/  https://www.combridgeinternational.com/
+- Twitter @vt_cathy
 in/cathylbrown
 Youtube @virtualteacher5718
 Inst @cathy_virtualteacher
